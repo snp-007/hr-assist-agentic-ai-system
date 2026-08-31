@@ -447,6 +447,8 @@ When given the onboarding instruction, Claude autonomously:
 
 **Siba Narayana Parida**
 🎓 NIT Rourkela
+<br>
 📧 [sibasuper278@gmail.com](mailto:sibasuper278@gmail.com)
+<br>
 🔗 [LinkedIn](https://www.linkedin.com/in/sibanarayanaparida007)
 
